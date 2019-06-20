@@ -1,6 +1,5 @@
 git  ginfdsfndkslgdsljgldsj
 dgodisgosdjgpdsjdsf;ldsjf;ds
-<<<<<<< HEAD
 sdfdsjfpodsjfpodjspofjdsp
 jdisojfoidsjfoidsjfiojdsoifjoisdjfoidsjifojdsoifjosdjfodsjfoijsdofndviodnvdoi
 12312312   
